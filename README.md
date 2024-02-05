@@ -3,4 +3,4 @@
 
 Repositório criado durante uma aula ao vivo do mestre sensei King Guanabara 
 
-Essa linah eu adicionei diretamente no site! UAU! Te amo Juli!
+Essa linha eu adicionei diretamente no site! UAU! Te amo Juli!
